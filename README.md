@@ -21,4 +21,4 @@ SEO优化是确保排名的关键。我们合理布局核心关键词并结合�
 总的来说，通过优化内容、SEO、用户体验和技术支持，网站能够提高流量，稳居“日本AV免费”这一关键词的搜索引擎第一位。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/ff684550/77844 ）</span>
